@@ -1,5 +1,6 @@
+#spider tank 
 
-# Termox
+اولین ارائه دهنده فارسی 
 
-(7.8.9.2.d/f///y//6065///g.k.4.6.7.8.2.3.5.6.7.3.2.9.3.9.1.5.3.6.2.9.6/)
-code robaka report
+Use as a legal or white hack. Any cheating or copying of spader tank is a legal matter, so use the tools legally.
+
